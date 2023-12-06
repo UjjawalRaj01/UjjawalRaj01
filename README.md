@@ -1,5 +1,5 @@
 # 💫 About Me:
- Hey there It’s Ujjawal<br> A web developer and <br>Currently doing unsupervised learning <br> Dm open for everyone 
+ Hey there It’s Ujjwal<br> A web developer and <br>Currently doing unsupervised learning <br> Dm open for everyone 
 
 
 ## 🌐 Socials:
